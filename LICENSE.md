@@ -1,4 +1,4 @@
-# 
+# Avancé WizTree modules complémentaires pour Mac OS | Premium WizTree modules complémentaires pour PC Windows. Avec paramètres privés et gestion du démarrage automatique — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
